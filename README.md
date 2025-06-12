@@ -1,4 +1,4 @@
-Hiya everyone, welcome on our Patreon page!
+Hiya everyone, welcome on our Github page!
 We are a system and we usually go by our systems hosts name (Wen), unless you know what alter you're speaking to, then please use their name.
 You can also call us Shell System or Shells when referring to all of us.
 (please try to avoid using "Shell" for us.)
